@@ -1,1 +1,0 @@
-# artemuchebniyprogect.github.io
